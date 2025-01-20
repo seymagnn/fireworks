@@ -1,4 +1,3 @@
 # fireworks
 
-https://github.com/user-attachments/assets/d9df00fb-4275-40a0-9935-10c2dd03359d
-
+![fireworks](https://github.com/user-attachments/assets/60ad632c-1de9-4454-874c-a03e4dbe4e12)
